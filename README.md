@@ -1,1 +1,0 @@
-# ring-testt3jgv
